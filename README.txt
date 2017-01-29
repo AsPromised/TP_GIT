@@ -1,0 +1,1 @@
+je sais qu'il y a des incohérences et de grosses erreurs dans ce tp car il y a très certainement des données que je n'ai pas intégrées, toute correction me sera extrêmement bénéfique pour combler mes lacunes
